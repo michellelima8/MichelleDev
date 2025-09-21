@@ -11,3 +11,5 @@
 ## 📫 Contato
 - [LinkedIn](www.linkedin.com/in/michelle-lima-0b0446218)
 - [Instagram](michellelima8)
+
+Vamos conectar! 💬
